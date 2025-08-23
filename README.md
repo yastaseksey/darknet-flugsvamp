@@ -24,4 +24,6 @@ It is critical to acknowledge the inherent risks involved in participating in su
 
 
 
-Update:  19 August 2025 url is now reachable
+
+
+Update:  08/23/2025 link is back up
